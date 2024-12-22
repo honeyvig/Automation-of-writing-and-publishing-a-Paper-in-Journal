@@ -1,0 +1,1 @@
+# Automation-of-writing-and-publishing-a-Paper-in-Journal
